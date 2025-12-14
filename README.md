@@ -12,3 +12,6 @@ Revente ou partage interdit
 Aucun remboursement
 
 Support : LibertyRP / Free Accès 
+
+Rejoin notre Discord et Ouvre un Ticket: 
+https://discord.gg/5FeQrkMY5g
